@@ -17,11 +17,8 @@
 
 [Elefante (Elephant) [2003]](https://drive.google.com/file/d/1CR97wG1MJKmMP8XwtP_m9HqnAbn4LANh/view)
 
-[Snowden 2016](https://drive.google.com/file/d/0BzIT5bTTHI8xOXl6SllxN05PTTg/view?usp=sharing)
-
 [V for Vendetta 2005](https://docs.google.com/file/d/0B6eDbYHIWvfoRUdTMEVFQUdOVzA/view)
 
-[Millennium A Garota 2019](https://drive.google.com/file/d/1EiKnicRi4Zw7qWIYXZojZzqTkCU0fpvo/view)
 
 [O Silencio dos Inocentes](https://drive.google.com/file/d/15kieW092UPVBwjQa0LRsAEm5FrQXbH6S/view)
 
@@ -71,6 +68,26 @@
 
 [Tempo Contado](https://drive.google.com/file/d/1RUUYx9dQTNOIZW-TAeHEu-TUI0qtseeM/view)
 
+[100 garotas 2000](https://drive.google.com/file/d/13aFWa3fG3BLRWI44dJV0vLY-lsbqfOJg/view)
+
+[Clitóris Prazer Proibido 2003](https://drive.google.com/file/d/0BwES4y1skhyQRXVMNklJOGY2RnM/view)
+
+[O Homem que Copiava 2003](https://drive.google.com/file/d/1u3KzHmKs0kKL0prjOppijdQ60BgmAh4Y/view)
+
+[Footloose Ritmo Louco 1984](https://drive.google.com/file/d/1wb2UnP_MUp6LKPpaaRb-GzZAsfXeOYT_/view)
+
+[Sem Limites 2011](https://drive.google.com/file/d/0B0qC7HeoQLWvT3AwUDd6MmFlaG8/view)
+
+[Karate Kid 2010](https://drive.google.com/file/d/1wXd9XhZAzxxFzPCTjAQPpvOIhQ-hFXD1/view)
+
+[Mad Max - Estrada da Furia](https://drive.google.com/file/d/1kVIe5EY2Tg5Tdb5YZeYeP_KQyJce-sby/view)
+
+[**Sherlock Holmes 2 - O Jogo de Sombras**](https://drive.google.com/file/d/1gtabj94xVKVmAE1NmFalYpcLKbmIQmqt/view)
+
+[]()
+
+[]()
+
 []()
 
 []()
@@ -95,6 +112,33 @@
 
 []()
 
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
 
 **Marvel**
 
@@ -122,15 +166,104 @@
 
 []()
 
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+
+
 **StarWars**
 
 [StarWars(Tudo ou quase)](https://drive.google.com/drive/folders/1-4ABnWoLmZoBngiI7I4fOPvTkEgsI9DU)
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
 
 
 
 
 **Mr Robot (Dublado pelo menos eu acho)**
 
-[Season 1](https://drive.google.com/drive/folders/0B7HedyN_NKSTNm9DR3Z6LUo0WG8?sort=13&direction=a)
+[1° Temporada](https://drive.google.com/drive/folders/0B7HedyN_NKSTNm9DR3Z6LUo0WG8?sort=13&direction=a)
 
-[Season 2](https://drive.google.com/drive/folders/0B7HedyN_NKSTQzdxSVlINHFnVWs?sort=13&direction=a)
+[1° Temporada](https://drive.google.com/drive/folders/0B7HedyN_NKSTQzdxSVlINHFnVWs?sort=13&direction=a)
+
+
+**Series**
+
+[Bates Motel 1° Temporada](https://drive.google.com/drive/folders/1OHybmA01-cYTHBqIWPSTKSvZckciNIeg?usp=sharing)
+
+[Me chama de Bruna 1° Temporada](https://drive.google.com/drive/folders/1P_X1M-jePM8zhlyge8mtK0mvJwHTrMXT)
+
+[Manifest 1° Temporada](https://drive.google.com/drive/folders/10rwSjSOVPZ9b3fk1G63DAslJ9bn7XEF-)
+
+[Sex Education 1° e 2° Temporada](https://drive.google.com/drive/folders/1Q2e_SBjyka_LJax9nbD5v02wXWLZ5edi)
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+**Filmes "Hackers" 😎** 
+
+[Hacker 2015](https://drive.google.com/file/d/0B9cyUs4KSYdnU0RkNkRabWZ3Vjg/view)
+
+[Hackers Criminosos e Anjos 2002](https://drive.google.com/file/d/1E9ieZ8RvLK2NQybr76xcXqqBonxAOnC8/view)
+
+[Hackers- Piratas de Computador ](https://drive.google.com/file/d/1j6JxPByva6oWv-zixxGbbXTQNl4yvkRB/view)
+
+[Snowden 2016](https://drive.google.com/file/d/0BzIT5bTTHI8xOXl6SllxN05PTTg/view?usp=sharing)
+
+[Millennium A Garota 2019](https://drive.google.com/file/d/1EiKnicRi4Zw7qWIYXZojZzqTkCU0fpvo/view)
+
+[Mente Criminosa 2016 (Youtube)](https://youtu.be/tZt8nxEt0kA) 
+
+[O quinto poder](https://gofilmes.me/o-quinto-poder) 
+
+[O quinto poder (TEST PLAYER)](https://gofilmes.me/play/h.php?eGFkV2VQWFBrOFhNUm9wSFBBR1RZdz09) 
+
+[]() 
+
+[]() 
+
+[]() 
+
+[]() 
+
+[]() 
+
+[]() 
+
+[]() 
+
+[]() 
