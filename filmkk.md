@@ -267,3 +267,32 @@
 []() 
 
 []() 
+
+**Lupin Dublado**
+
+[LUPINS01E01](https://drive.google.com/file/d/1At7-eYkpwNoX0622jXo8WX2r3rH_raz2/view)
+
+[LUPINS01E02](https://drive.google.com/file/d/1GPgCRfaXiAy0AL2Ypav7xqN3bkn-_tP4/view) 
+
+[LUPINS01E03](https://drive.google.com/file/d/1F9a2bisBCOOUULG_UNtvDuifKzmExe2f/view) 
+
+[LUPINS01E04](https://drive.google.com/file/d/1qvqFWWooj_0qZcFfi0aSVrvUAoZvGt2J/view) 
+
+[LUPINS01E05](https://drive.google.com/file/d/1EBuhDk_3V9GF-5eml_rgbdEUP_vLBAHJ/view) 
+
+[LUPINS01E06]() 
+
+[LUPINS01E07]() 
+
+[]() 
+
+[]() 
+
+[]() 
+
+[]() 
+
+[]() 
+
+
+
