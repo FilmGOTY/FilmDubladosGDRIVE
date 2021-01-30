@@ -213,7 +213,7 @@
 
 [1° Temporada](https://drive.google.com/drive/folders/0B7HedyN_NKSTNm9DR3Z6LUo0WG8?sort=13&direction=a)
 
-[1° Temporada](https://drive.google.com/drive/folders/0B7HedyN_NKSTQzdxSVlINHFnVWs?sort=13&direction=a)
+[1° e 2° temporada](http://annimesplay.blogspot.com/p/serie-mr-robot-2015-completa-dublado.html?m=1)
 
 
 **Series**
