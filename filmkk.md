@@ -13,6 +13,8 @@
 
 **Filmes**
 
+[Akira (1988)](https://uptostream.com/iframe/1a2l3zfdrcib)
+
 [Cidade das Sombras (1998)](https://drive.google.com/file/d/0B5hmIXlBU7wyZkRrTmpZN3AweVk/view)
 
 [American Psycho](https://drive.google.com/file/d/1097Fs88mAJy0JWbeNDT-UdGfKB-iqcv8/view)
