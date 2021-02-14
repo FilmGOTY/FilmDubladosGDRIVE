@@ -23,7 +23,7 @@
 
 [2001 - Uma Odisséia no Espaço](https://drive.google.com/file/d/1v8k8dGtmZZcDLVOxJketCnut7PHTul0y/view)
 
-[Kill Bill - Volume 1](https://www.amazon.com/clouddrive/share/CHSrjBzL88tNtpZIcNGYvKGPts1Z34n7YMuHO0bkAdc?_encoding=UTF8&*Version*=1&*entries*=0&mgh=1)
+[Kill Bill - Volume 1](https://drive.google.com/file/d/1urlc0Vfkb_vYyGgLEzcUVx4PrMyAv9Zf/view?usp=sharing)
 
 [Elefante (Elephant) [2003]](https://drive.google.com/file/d/1CR97wG1MJKmMP8XwtP_m9HqnAbn4LANh/view)
 
