@@ -3,11 +3,13 @@
 
 [megaboxfilmesonline](https://megaboxfilmesonline.com/tag/1998)
 
+[dinhomcgames](https://dinhomcgames.blogspot.com/)
+
 [Desenhos Now](https://nowanimes.com/category/desenhos/)
 
 [Series Zoiudo](http://serieszoiudo.blogspot.com/)
 
-[Teste](https://www.memoriadatv.com/?s=PCLOUD&search_404=1)
+[Memoria Da TV](https://www.memoriadatv.com)
 
 [Now animes](https://nowanimes.com/)
 
