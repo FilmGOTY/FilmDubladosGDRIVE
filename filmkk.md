@@ -283,17 +283,18 @@
 
 []() 
 
-**Lupin Dublado**
+**Hannibal Dublado**
 
+[Hannibal EP01](https://files.catbox.moe/eu6ezg.mp4)
 
-[EP01](https://drive.google.com/file/d/1DCISF6RZQadrdQTfnkzi5x132cxs1PDk/view?usp=sharing)
+[]() 
 
-[EP02](https://drive.google.com/file/d/11-i8W-hsEx-1W6EbsDZqqd3stkpiOoz7/view?usp=sharing)
+[]() 
 
-[EP03](https://drive.google.com/file/d/1LSD97LquKaesmPsiO1221CtWMIq4qnMl/view?usp=sharing)
+[]() 
 
-[EP04](https://drive.google.com/file/d/1h5kvrcWsOOw9h2wEMX_c0Ryw3TDMEYwq/view?usp=sharing)
+[]() 
 
-[EP05](https://drive.google.com/file/d/1sqAD1aHZeP94M0VPuQonbXlfPEPdIQDI/view?usp=sharing)
+[]() 
 
 
