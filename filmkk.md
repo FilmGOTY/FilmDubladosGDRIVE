@@ -15,6 +15,8 @@
 
 **Filmes**
 
+[Coraline e o Mundo Secreto](https://drive.google.com/file/d/1yV_bh6yhCejRpVGBJkMbcFKUQdSELkY5/view)
+
 [Taxi Driver](https://drive.google.com/file/d/1Be2biVHmJJUwZeMyWiHdbFq7DvUJL9og/view)
 
 [Blade Runner: O Caçador de Androides](https://drive.google.com/file/d/1lPgguiXrusQEB3h2SWtoSKp-bKOqWCGW/view)
