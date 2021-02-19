@@ -15,7 +15,7 @@
 
 **Filmes**
 
-[Akira (1988)](https://uptostream.com/iframe/1a2l3zfdrcib)
+[Blade Runner: O Caçador de Androides](https://drive.google.com/file/d/1lPgguiXrusQEB3h2SWtoSKp-bKOqWCGW/view)
 
 [Cidade das Sombras (1998)](https://drive.google.com/file/d/0B5hmIXlBU7wyZkRrTmpZN3AweVk/view)
 
