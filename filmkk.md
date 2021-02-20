@@ -17,6 +17,8 @@
 
 **Filmes (Dublado) (GoogleDrive)**
 
+[Cães de Aluguel (1992)](https://drive.google.com/file/d/1NgQVxCBw2cdNCGjy75LmRI2prjEEfS45/view)
+
 [Uma Noite em Miami...](https://drive.google.com/file/d/1uhHzTwEzp8YkOEujbnUUrEDi21ozmlVR/view)
 
 [Constantine](https://drive.google.com/file/d/1j9p-6Dr1-rA2_FJ_z-WkyRNnXXCMvcmd/view)
