@@ -1,7 +1,9 @@
 
 **Sites**
 
-[Filmes no Mega](https://filmesnomega.info/category/filmes-classicos/page/9/)
+[Seu seriado](https://seuseriado.club/)
+
+[Filmes no mega](https://filmesnomega.info/category/filmes-classicos/page/9/)
 
 [megaboxfilmesonline](https://megaboxfilmesonline.com/tag/1998)
 
@@ -9,9 +11,9 @@
 
 [Desenhos Now](https://nowanimes.com/category/desenhos/)
 
-[Series Zoiudo](http://serieszoiudo.blogspot.com/)
+[Series zoiudo](http://serieszoiudo.blogspot.com/)
 
-[Memoria Da TV](https://www.memoriadatv.com)
+[Memoria da TV](https://www.memoriadatv.com)
 
 [Now animes](https://nowanimes.com/)
 
