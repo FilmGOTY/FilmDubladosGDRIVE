@@ -318,7 +318,7 @@
 
 **WandaVision 1ª Temporada Episódio**
 
-[1° Episódio]()
+[1° Episódio](https://files.catbox.moe/wk1e7s.mp4)
 
 [2° Episódio]()
 
