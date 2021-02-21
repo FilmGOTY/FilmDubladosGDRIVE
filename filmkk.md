@@ -322,9 +322,9 @@
 
 [2° Episódio](https://files.catbox.moe/q6m8kp.mp4)
 
-[3° Episódio]()
+[3° Episódio](https://files.catbox.moe/e2t6v7.mp4)
 
-[4° Episódio]()
+[4° Episódio](https://files.catbox.moe/9dtnnx.mp4)
 
 [5° Episódio]()
 
