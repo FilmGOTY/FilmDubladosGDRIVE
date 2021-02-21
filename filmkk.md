@@ -328,6 +328,6 @@
 
 [5° Episódio](https://files.catbox.moe/b8kfd4.mp4)
 
-[6° Episódio]()
+[6° Episódio](https://files.catbox.moe/2swcjd.mp4)
 
 
