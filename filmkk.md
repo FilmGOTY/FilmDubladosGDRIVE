@@ -330,4 +330,7 @@
 
 [6° Episódio](https://files.catbox.moe/2swcjd.mp4)
 
+**XD**
+
+[EP01](https://files.catbox.moe/l7p317.mp4)
 
