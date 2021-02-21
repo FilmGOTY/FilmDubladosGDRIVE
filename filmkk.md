@@ -320,7 +320,7 @@
 
 [1° Episódio](https://files.catbox.moe/wk1e7s.mp4)
 
-[2° Episódio]()
+[2° Episódio](https://files.catbox.moe/q6m8kp.mp4)
 
 [3° Episódio]()
 
