@@ -19,6 +19,8 @@
 
 **Filmes (Dublado) (GoogleDrive)**
 
+[Bastardos Inglórios](https://drive.google.com/file/d/1UKy-E1FV36QBguE2MY4UBi-RMC6iNeLX/view)
+
 [Cães de Aluguel (1992)](https://drive.google.com/file/d/1NgQVxCBw2cdNCGjy75LmRI2prjEEfS45/view)
 
 [Uma Noite em Miami...](https://drive.google.com/file/d/1uhHzTwEzp8YkOEujbnUUrEDi21ozmlVR/view)
