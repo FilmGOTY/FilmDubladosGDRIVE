@@ -19,6 +19,8 @@
 
 **Filmes (Dublado) (GoogleDrive)**
 
+[Pasta Terror - 16](https://drive.google.com/drive/folders/1ksaVdpH5zD8CYpiQp5vTgGckCaAQNhrn)
+
 [Bastardos Inglórios](https://drive.google.com/file/d/1UKy-E1FV36QBguE2MY4UBi-RMC6iNeLX/view)
 
 [Cães de Aluguel (1992)](https://drive.google.com/file/d/1NgQVxCBw2cdNCGjy75LmRI2prjEEfS45/view)
