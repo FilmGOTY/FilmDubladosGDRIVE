@@ -19,6 +19,8 @@
 
 **Filmes (Dublado) (GoogleDrive)**
 
+[O iluminado](https://drive.google.com/file/d/1fhLKZpKg45IrOyOsvb1x8JO7edpjXCZA/view)
+
 [Pasta Terror - 16](https://drive.google.com/drive/folders/1ksaVdpH5zD8CYpiQp5vTgGckCaAQNhrn)
 
 [Bastardos Inglórios](https://drive.google.com/file/d/1UKy-E1FV36QBguE2MY4UBi-RMC6iNeLX/view)
