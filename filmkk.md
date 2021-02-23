@@ -20,6 +20,8 @@
 **Filmes (Dublado) (GoogleDrive)**
 
 
+[Caçadores de Emoção (1991)](https://drive.google.com/file/d/1DWFxqv2jEpQpc3KLK5eCIzj1-6cIDQZK/view)
+
 [O Quarto dos Desejos (2020)](https://drive.google.com/file/d/1Xc30PnIzvBLsQHR56-pnh2wzqDoSpLHu/view)
 
 [Cara, Cadê meu Carro? (2000)](https://drive.google.com/file/d/1wqDUDx4OMV1zBB8d6LibZGJh1SMgv9h3/view)
