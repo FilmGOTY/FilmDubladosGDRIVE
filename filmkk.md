@@ -19,6 +19,25 @@
 
 **Filmes (Dublado) (GoogleDrive)**
 
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+
+[Oblivion (2013)](https://drive.google.com/file/d/1lnr_CW3igm87irZuEZjKOldziaX6sJ2z/view)
+
+[Crimes Cibernéticos (2020)](https://drive.google.com/file/d/1pdukxmCN7er3a7Fu9MDrmXZZdkt983FT/view)
+
 [O iluminado](https://drive.google.com/file/d/1fhLKZpKg45IrOyOsvb1x8JO7edpjXCZA/view)
 
 [Pasta Terror - 16](https://drive.google.com/drive/folders/1ksaVdpH5zD8CYpiQp5vTgGckCaAQNhrn)
@@ -201,9 +220,9 @@
 
 []()
 
-[]()
+[Homem de Ferro 1 (2008)](https://drive.google.com/file/d/13xFyTBSY_qpIK-rHKmooNLe26B5ciP13/view)
 
-[]()
+[Pantera Negra (2018)](https://drive.google.com/file/d/1IH6N3_y383usDup4Ngwpsw-ASYe3OwPP/view)
 
 []()
 
