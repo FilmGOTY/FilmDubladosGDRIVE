@@ -17,8 +17,11 @@
 
 [Now animes](https://nowanimes.com/)
 
+[Baixe Filme Easy](https://baixefilmeseasy.blogspot.com/)
+
 **Filmes (Dublado) (GoogleDrive)**
 
+[Uma Mente Brilhante (2001)](https://drive.google.com/file/d/1-qQNmFOhecu1bKKMUVnYCkXFCvnp8vvA/view)
 
 [Caçadores de Emoção (1991)](https://drive.google.com/file/d/1DWFxqv2jEpQpc3KLK5eCIzj1-6cIDQZK/view)
 
