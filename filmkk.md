@@ -21,6 +21,8 @@
 
 **Filmes (Dublado) (GoogleDrive)**
 
+[Câes De Aluguel (1992)](https://drive.google.com/file/d/1-EQl_NVh7Yc4bGFnrzyMeo062vZcVgS1/view)
+
 [Um Crime de Mestre (2007)](https://drive.google.com/file/d/1-MG0ySCwY9qmwhV_ekuREt5HHM5GYXVO/view)
 
 [Uma Mente Brilhante (2001)](https://drive.google.com/file/d/1-qQNmFOhecu1bKKMUVnYCkXFCvnp8vvA/view)
