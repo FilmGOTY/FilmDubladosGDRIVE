@@ -21,6 +21,8 @@
 
 **Filmes (Dublado) (GoogleDrive)**
 
+[Straight Outta Compton (2015)](https://drive.google.com/file/d/1iDJqvmLzTtSflyTQAlJcFVgg475N7qSQ/view)
+
 [O Lobo de Wall Street (2013)](https://drive.google.com/file/d/1N538J77iWS_x5FxPXUdaB4GYC-9cQQ2C/view)
 
 [Quebrando a Banca (2008)](https://drive.google.com/file/d/1oJ8hHMJPkMIEMzZtGBCJYzB3KZq8OB9D/view)
