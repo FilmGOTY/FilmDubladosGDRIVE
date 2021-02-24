@@ -21,6 +21,8 @@
 
 **Filmes (Dublado) (GoogleDrive)**
 
+[Quebrando a Banca (2008)](https://drive.google.com/file/d/1oJ8hHMJPkMIEMzZtGBCJYzB3KZq8OB9D/view)
+
 [O Poderoso Chefão (1972)](https://drive.google.com/file/d/1o8NCIYniAsDqqxeigt818O2-T8oEOlXp/view)
 
 [Gênio Indomável (1997)](https://drive.google.com/file/d/1-FEErHb3XXEQHKXObMdG38jBIGKDPHTX/view)
