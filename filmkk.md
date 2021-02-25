@@ -21,6 +21,8 @@
 
 **Filmes (Dublado) (GoogleDrive)**
 
+[Hannibal (2001)](https://drive.google.com/file/d/1-58uE_A3rbqaKDIfQoiQU-wkLxqCoLQP/view)
+
 [Straight Outta Compton (2015)](https://drive.google.com/file/d/1iDJqvmLzTtSflyTQAlJcFVgg475N7qSQ/view)
 
 [O Lobo de Wall Street (2013)](https://drive.google.com/file/d/1N538J77iWS_x5FxPXUdaB4GYC-9cQQ2C/view)
