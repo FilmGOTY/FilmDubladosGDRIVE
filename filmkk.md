@@ -1,6 +1,10 @@
 
 **Sites**
 
+[Todo Poderoso (2003)](https://drive.google.com/file/d/10Irjj_TZlUfHcentLhn-mgpw_PiEb4BN/view)
+
+[Em Má Companhia (2002)](https://drive.google.com/file/d/1w56zHAqncnlW_Q9SPHUvb8qmC2G_UtEL/view)
+
 [Seu seriado](https://seuseriado.club/)
 
 [Filmes no mega](https://filmesnomega.info/category/filmes-classicos/page/9/)
