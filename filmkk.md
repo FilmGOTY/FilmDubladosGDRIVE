@@ -25,6 +25,8 @@
 
 **Filmes (Dublado) (GoogleDrive)**
 
+[Os Bons Companheiros (1990)](https://drive.google.com/file/d/11eGu_zjkdGQZO4YhPxbhizdXzutQNIk8/view)
+
 [Uma Mente Brilhante (2001) Vimeo](https://vimeo.com/382446611)
 
 [Hannibal Dragão Vermelho (2002)](https://drive.google.com/file/d/1czj8AkE9_XTk4fiBkhj-Wguo7TnG4mzD/view)
