@@ -1,10 +1,6 @@
 
 **Sites**
 
-[Todo Poderoso (2003)](https://drive.google.com/file/d/10Irjj_TZlUfHcentLhn-mgpw_PiEb4BN/view)
-
-[Em Má Companhia (2002)](https://drive.google.com/file/d/1w56zHAqncnlW_Q9SPHUvb8qmC2G_UtEL/view)
-
 [Seu seriado](https://seuseriado.club/)
 
 [Filmes no mega](https://filmesnomega.info/category/filmes-classicos/page/9/)
@@ -24,6 +20,26 @@
 [Baixe Filme Easy](https://baixefilmeseasy.blogspot.com/)
 
 **Filmes (Dublado) (GoogleDrive)**
+
+[]()
+
+[]()
+
+[]()
+
+[Apocalypse Now (1979)](https://drive.google.com/file/d/1NZHG7XqDZXOF5eo37FxQ_xGjgVLwZhXc/view)
+
+[Os Suspeitos (1995)](https://drive.google.com/file/d/1JDRTz4Jo23HPa7uf4M4jp7VP1GHV7Ezi/view)
+
+[Coração de Cavaleiro (2001)](https://drive.google.com/file/d/1-WsKgZ5HR8ijhaNgoGg82YP7TTd0K_qx/view)
+
+[O Profissional (1994) Versão Extendida](https://drive.google.com/file/d/1-U9LdqYG0Q1qlbDketRkoiXqbUv_ey0o/view?usp=sharing)
+
+[A Senha: Swordfish (2001)](https://drive.google.com/file/d/1-HQ7I-kmN7k5iRIeDTWYLx96m8PYTNS7/view)
+
+[Todo Poderoso (2003)](https://drive.google.com/file/d/10Irjj_TZlUfHcentLhn-mgpw_PiEb4BN/view)
+
+[Em Má Companhia (2002)](https://drive.google.com/file/d/1w56zHAqncnlW_Q9SPHUvb8qmC2G_UtEL/view)
 
 [Carga Explosiva (2002)](https://drive.google.com/file/d/1-DIvmaUXXTeznKJ1hDy8Suy2FhhkrCt-/view)
 
