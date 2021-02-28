@@ -7,6 +7,8 @@
 
 [megaboxfilmesonline](https://megaboxfilmesonline.com/tag/1998)
 
+[Vingadores](https://www.youtube.com/c/TerminalHacker)
+
 [dinhomcgames](https://dinhomcgames.blogspot.com/)
 
 [Desenhos Now](https://nowanimes.com/category/desenhos/)
