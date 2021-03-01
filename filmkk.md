@@ -1,5 +1,5 @@
 
-**Sites**
+# Sites
 
 [Seu seriado](https://seuseriado.club/)
 
@@ -21,7 +21,7 @@
 
 [Baixe Filme Easy](https://baixefilmeseasy.blogspot.com/)
 
-**Filmes (Dublado) (GoogleDrive)**
+# Filmes (Dublado) (GoogleDrive)
 
 [Você Nunca Esteve Realmente Aqui (2017)](https://hdfog.club/video/playerfteste.php?url=NS90dDU3NDIzNzQvbm9uZS9ub25l)
 
@@ -208,7 +208,7 @@
 
 []()
 
-**Pastas**
+# Pastas
 
 [Pasta 1](https://drive.google.com/drive/folders/1DlFd6nHaZZSROgYjkGWUTp5_BKuTxQKI?usp=sharing)
 
@@ -230,7 +230,7 @@
 []()
 
 
-**Animaçoes**
+# Animaçoes
 
 [Death Note (2006)](https://drive.google.com/drive/folders/1QNY7iHanLgwiQ22LDQLcuOV-0KrLzihk)
 
@@ -278,7 +278,7 @@
 
 []()
 
-**Marvel**
+# Marvel
 
 [Vingadores Guerra Infinita](https://drive.google.com/file/d/1Zl1iFczvg7uBRHPFCNtwiJQR5_CMGfVy/view?usp=sharing)
 
@@ -322,7 +322,7 @@
 
 
 
-**StarWars**
+# StarWars
 
 [StarWars(Tudo ou quase)](https://drive.google.com/drive/folders/1-4ABnWoLmZoBngiI7I4fOPvTkEgsI9DU)
 
@@ -345,7 +345,7 @@
 
 
 
-**Mr Robot (Dublado pelo menos eu acho)**
+# Mr Robot (Dublado pelo menos eu acho)
 
 [1° Temporada](https://drive.google.com/drive/folders/0B7HedyN_NKSTNm9DR3Z6LUo0WG8?sort=13&direction=a)
 
@@ -355,7 +355,7 @@
 
 
 
-**Series**
+# Series
 
 [Bates Motel 1° Temporada](https://drive.google.com/drive/folders/1OHybmA01-cYTHBqIWPSTKSvZckciNIeg?usp=sharing)
 
@@ -365,7 +365,7 @@
 
 [Sex Education 1° e 2° Temporada](https://drive.google.com/drive/folders/1Q2e_SBjyka_LJax9nbD5v02wXWLZ5edi)
 
-[](https://drive.google.com/drive/folders/1JKNtbla-rBVb-B-dZryjXXm92QgUScio)
+[Como vender drogas online (2019)](https://drive.google.com/drive/folders/1JKNtbla-rBVb-B-dZryjXXm92QgUScio)
 
 []()
 
@@ -375,7 +375,7 @@
 
 []()
 
-**Filmes "Hackers" 😎** 
+# Filmes Hackers
 
 [Hacker 2015](https://drive.google.com/file/d/0B9cyUs4KSYdnU0RkNkRabWZ3Vjg/view)
 
@@ -409,7 +409,7 @@
 
 []() 
 
-**Hannibal Dublado**
+# Hannibal Dublado
 
 [Hannibal A Origem do Mal](https://drive.google.com/file/d/12aF_CA2tPqWnyGnybP5QO5ByNvOjhmHF/view)
 
@@ -425,7 +425,7 @@
 
 [Hannibal EP06](https://files.catbox.moe/i6erex.mp4) 
 
-**WandaVision 1ª Temporada Episódio**
+# WandaVision 1ª Temporada Episódio
 
 [1° Episódio](https://files.catbox.moe/wk1e7s.mp4)
 
@@ -439,7 +439,7 @@
 
 [6° Episódio](https://files.catbox.moe/2swcjd.mp4)
 
-**XD**
+# XD
 
 [EP01](https://files.catbox.moe/l7p317.mp4)
 
