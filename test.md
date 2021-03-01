@@ -48,4 +48,14 @@
 
 [Amigos alienígenas assistir 1080p](http://bit.ly/31zyJst)
 
-[Assistir 10 segundos para vencer 720p dublado](http://condor3292.startdedicated.com/filmes/%2010-Segundos-para-Vencer-10segundosparavencer-dub-720p.mp4)
+[Dub: Fogo contra fogo 2013 1080p](https://bit.ly/2JXsFDo)
+
+[Assistir Scooby-Doo! De Volta à Ilha dos Zumbis dub](https://bit.ly/3b8UzbA)
+
+[Capitão Marvel 2019 - SEM ADS](http://bit.ly/30jn0xZ)
+
+[Vingadores Ultimado HD](http://bit.ly/31zCCgO)
+
+[Aquaman Dublado 720p assistir](http://bit.ly/2H0VHkm)
+
+[Assista a O Predador 720p dublado](http://bit.ly/2yR4EIw)
