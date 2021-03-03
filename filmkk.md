@@ -25,6 +25,10 @@
 
 # Filmes (Dublado) (GoogleDrive)
 
+[O Poderoso Chefão 3 (1991)](https://drive.google.com/file/d/19u_xO_jBrjgMci6-s3-S9Aus2JjLaT_w/view)
+
+[O Poderoso Chefão 2 (1974)](https://drive.google.com/file/d/1YtsfkCzXzjnnPASbKOIyRBFOcTcnaQRw/view)
+
 [O código da vinci (2006)](https://drive.google.com/file/d/110y7bSLrPGnQ-cKfl0FXkbdQb7H5JKJN/view)
 
 [Você Nunca Esteve Realmente Aqui (2017)](https://hdfog.club/video/playerfteste.php?url=NS90dDU3NDIzNzQvbm9uZS9ub25l)
