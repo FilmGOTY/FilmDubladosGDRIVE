@@ -11,6 +11,8 @@
 
 [megaboxfilmesonline](https://megaboxfilmesonline.com/tag/1998)
 
+[AnimesHouse](https://animeshouse.net/episodio/boku-no-hero-academia-episodio-3-legendado-hd/)
+
 [Vingadores](https://www.youtube.com/c/TerminalHacker)
 
 [dinhomcgames](https://dinhomcgames.blogspot.com/)
