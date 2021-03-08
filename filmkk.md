@@ -445,6 +445,10 @@
 
 [Hannibal EP08](https://files.catbox.moe/dsxkjh.mp4)
 
+[Hannibal EP09](https://files.catbox.moe/20pox0.mp4)
+
+[Hannibal EP10](https://files.catbox.moe/bkg84s.mp4)
+
 # WandaVision 1ª Temporada Episódio
 
 [1° Episódio](https://files.catbox.moe/wk1e7s.mp4)
