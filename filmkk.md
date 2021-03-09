@@ -23,7 +23,7 @@
 
 # Filmes (Dublado) (GoogleDrive)
 
-[Baby Driver (2017)](https://drive.google.com/file/d/1YAdHO2fKTGXxlCMSbBwZC4iFk8hd8mmJ/view)
+[Baby Driver (2017)](https://drive.google.com/file/d/11fFPBgfSfaRal89Cqi0NU_8N0Ui-eLHl/view)
 
 [O Abutre (2014)](https://drive.google.com/file/d/0B09iwlJcDYZQdGJma09sWjdGVEE/view)
 
@@ -359,13 +359,8 @@
 
 
 
-# Mr Robot (Dublado pelo menos eu acho)
 
-[1° Temporada](https://drive.google.com/drive/folders/0B7HedyN_NKSTNm9DR3Z6LUo0WG8?sort=13&direction=a)
 
-[2° Temporada](https://drive.google.com/drive/folders/1xuiE1cbpLYpdeAgNJUmB3tb-L4cS6y9U?usp=sharing)
-
-[3° Temporada](https://drive.google.com/drive/folders/1SqmsosdamV71LTk_Jp75fWNNrfjfUIJu?usp=sharing)
 
 
 
@@ -380,6 +375,13 @@
 [Sex Education 1° e 2° Temporada](https://drive.google.com/drive/folders/1Q2e_SBjyka_LJax9nbD5v02wXWLZ5edi)
 
 [Como vender drogas online (2019)](https://drive.google.com/drive/folders/1JKNtbla-rBVb-B-dZryjXXm92QgUScio)
+
+
+[Mr Robot 1° Temporada](https://drive.google.com/drive/folders/0B7HedyN_NKSTNm9DR3Z6LUo0WG8?sort=13&direction=a)
+
+[Mr Robot 2° Temporada](https://drive.google.com/drive/folders/1xuiE1cbpLYpdeAgNJUmB3tb-L4cS6y9U?usp=sharing)
+
+[Mr Robot 3° Temporada](https://drive.google.com/drive/folders/1SqmsosdamV71LTk_Jp75fWNNrfjfUIJu?usp=sharing)
 
 []()
 
