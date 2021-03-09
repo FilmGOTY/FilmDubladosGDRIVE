@@ -3,6 +3,8 @@
 
 [Seu seriado](https://seuseriado.club/)
 
+[mundodosfilmesy](https://mundodosfilmesy.blogspot.com/)
+
 [Download Livre](https://www.downloadlivre.xyz/)
 
 [Filmes no mega](https://filmesnomega.info/category/filmes-classicos/page/9/)
