@@ -5,15 +5,9 @@
 
 [Download Livre](https://www.downloadlivre.xyz/)
 
-[Test player](https://play.starzfilm.com/pt/movie/265195)
-
 [Filmes no mega](https://filmesnomega.info/category/filmes-classicos/page/9/)
 
 [megaboxfilmesonline](https://megaboxfilmesonline.com/tag/1998)
-
-[AnimesHouse](https://animeshouse.net/episodio/boku-no-hero-academia-episodio-3-legendado-hd/)
-
-[Vingadores](https://www.youtube.com/c/TerminalHacker)
 
 [dinhomcgames](https://dinhomcgames.blogspot.com/)
 
