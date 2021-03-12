@@ -21,6 +21,8 @@
 
 [Animes Log](https://animeslog.com/video/1094830)
 
+[31](https://animeslog.com/video/165547)
+
 [Now animes](https://nowanimes.com/)
 
 [Baixe Filme Easy](https://baixefilmeseasy.blogspot.com/)
