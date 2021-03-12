@@ -19,6 +19,8 @@
 
 [Memoria da TV](https://www.memoriadatv.com)
 
+[Animes Log](https://animeslog.com/video/1094830)
+
 [Now animes](https://nowanimes.com/)
 
 [Baixe Filme Easy](https://baixefilmeseasy.blogspot.com/)
