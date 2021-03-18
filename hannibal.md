@@ -1,6 +1,8 @@
-# Hannibal
+# Hannibal Filmes
 
 [Hannibal A Origem do Mal (2007)](https://drive.google.com/file/d/12aF_CA2tPqWnyGnybP5QO5ByNvOjhmHF/view)
+
+# Hannibal
 
 [Hannibal EP01](https://files.catbox.moe/eu6ezg.mp4)
 
@@ -26,4 +28,8 @@
 
 [Hannibal EP12](https://files.catbox.moe/7cwd2m.mp4)
 
-[Hannibal EP13]()
+[Hannibal EP13](https://files.catbox.moe/tk2jgb.mp4)
+
+# Hannibal Temporada 2
+
+[Hannibal EP01](https://files.catbox.moe/4ulmms.mp4)
