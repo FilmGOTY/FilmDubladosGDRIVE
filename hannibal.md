@@ -2,6 +2,12 @@
 
 [Hannibal A Origem do Mal (2007)](https://drive.google.com/file/d/12aF_CA2tPqWnyGnybP5QO5ByNvOjhmHF/view)
 
+[Hannibal Dragão Vermelho (2002)](https://drive.google.com/file/d/1czj8AkE9_XTk4fiBkhj-Wguo7TnG4mzD/view)
+
+[Hannibal (2001)](https://drive.google.com/file/d/1-58uE_A3rbqaKDIfQoiQU-wkLxqCoLQP/view)
+
+[O Silencio dos Inocentes](https://drive.google.com/file/d/15kieW092UPVBwjQa0LRsAEm5FrQXbH6S/view)
+
 # Hannibal
 
 [Hannibal EP01](https://files.catbox.moe/eu6ezg.mp4)
