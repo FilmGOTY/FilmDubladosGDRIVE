@@ -37,3 +37,9 @@
 [Hannibal EP02](https://files.catbox.moe/4jpvws.mp4)
 
 [Hannibal EP03](https://files.catbox.moe/gzcwx9.mp4)
+ 
+[Hannibal EP04](https://files.catbox.moe/n2reru.mp4)
+ 
+[Hannibal EP05](https://files.catbox.moe/pl8gg5.mp4)
+ 
+[Hannibal EP06](https://files.catbox.moe/vlk2zu.mp4)
