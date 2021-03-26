@@ -29,6 +29,8 @@
 
 # Filmes (Dublado) (GoogleDrive)
 
+[Akira 1988](https://drive.google.com/file/d/1F82xZqZ6VuAy8wsixMekjrnHZRb9t2iE/view?usp=sharing)
+
 [Hannibal](https://github.com/FilmGOTY/FilmDubladosGDRIVE/blob/main/hannibal.md)
 
 [Baby Driver (2017)](https://drive.google.com/file/d/11fFPBgfSfaRal89Cqi0NU_8N0Ui-eLHl/view)
