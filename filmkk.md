@@ -1,6 +1,16 @@
 
 # Sites
 
+[test](https://filmeseseriesonlinebr.com/quebrando-a-banca-dublado/)
+
+[test](https://vizer.tv/filme/online/quebrando-a-banca)
+
+[test](https://filmeshdx.net/quebrando-a-banca/)
+
+[test](https://redecanais.cloud/quebrando-a-banca-dublado-2008-1080p_0f7f71dfb.html)
+
+[test](https://www2.seriesflix.org/filmes/quebrando-a-banca/)
+
 [Seu seriado](https://seuseriado.club/)
 
 [mundodosfilmesy](https://mundodosfilmesy.blogspot.com/)
@@ -26,6 +36,8 @@
 [Now animes](https://nowanimes.com/)
 
 [Baixe Filme Easy](https://baixefilmeseasy.blogspot.com/)
+
+[fullmetal](https://nowanimes.com/assistir-fullmetal-alchemist-brotherhood-1/)
 
 # Filmes (Dublado) (GoogleDrive)
 
