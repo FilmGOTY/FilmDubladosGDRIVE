@@ -1,9 +1,9 @@
 
 # Sites
 
-[test](https://www.flashfilmeshd.com/scarface/)
+[NetCine](https://netcine.biz/)
 
-[test](https://www.superflix.net/assistir-filme-scarface-1983-dublado-legendado/)
+[GoFilmes](https://gofilmes.me/)
 
 [test](https://superfilmes.tv/filmes/assistir-online-scarface/)
 
