@@ -7,6 +7,8 @@
 
 [SuperFilmes](https://superfilmes.tv/#/)
 
+[SuperSeries](https://superfilmes.tv/series/)
+
 [Seila](https://assistir.biz/filme/clube-da-luta)
 
 [Seu seriado](https://seuseriado.club/)
