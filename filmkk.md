@@ -5,7 +5,7 @@
 
 [GoFilmes](https://gofilmes.me/)
 
-[SuperFilmes](https://superfilmes.tv/)
+[SuperFilmes](https://superfilmes.tv/#/)
 
 [Seila](https://assistir.biz/filme/clube-da-luta)
 
