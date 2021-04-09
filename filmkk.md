@@ -43,6 +43,8 @@
 
 # Filmes (Dublado) (GoogleDrive)
 
+[vivy](https://www.myanimesonline.biz/animes/episodio/vivy-fluorite-eyes-song-episodio-01/)
+
 [Akira 1988](https://drive.google.com/file/d/1F82xZqZ6VuAy8wsixMekjrnHZRb9t2iE/view?usp=sharing)
 
 [Hannibal](https://github.com/FilmGOTY/FilmDubladosGDRIVE/blob/main/hannibal.md)
