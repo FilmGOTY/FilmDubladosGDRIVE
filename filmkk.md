@@ -43,6 +43,8 @@
 
 # Filmes (Dublado) (GoogleDrive)
 
+[Boku no hero 3](https://www.listadeanimes.com/379.html)
+
 [vivy](https://www.myanimesonline.biz/animes/episodio/vivy-fluorite-eyes-song-episodio-01/)
 
 [Akira 1988](https://drive.google.com/file/d/1F82xZqZ6VuAy8wsixMekjrnHZRb9t2iE/view?usp=sharing)
