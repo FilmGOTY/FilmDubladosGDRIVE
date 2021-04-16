@@ -9,6 +9,8 @@
 
 [SuperSeries](https://superfilmes.tv/series/)
 
+[TheFilmes](https://thefilmes.tv/filmes/9323-ghost-in-the-shell-o-fantasma-do-futuro/)
+
 [SuperFilmes Online](https://superfilmes.online/kids/)
 
 [Assistir.biz](https://assistir.biz/filme/clube-da-luta)
