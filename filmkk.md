@@ -45,6 +45,8 @@
 
 # Filmes (Dublado) (GoogleDrive)
 
+[Breaking Bad: A Química do Mal - Temporada3](https://www.superflix.net/temporada/serie-online-breaking-bad-a-quimica-do-mal-3a-temporada-dublado/)
+
 [Boku no hero 3](https://drive.google.com/drive/folders/1sjNWJ-jgvNGZaJlfPx3PtyVDRwkzlH8A?usp=sharing)
 
 [vivy](https://www.myanimesonline.biz/animes/episodio/vivy-fluorite-eyes-song-episodio-01/)
