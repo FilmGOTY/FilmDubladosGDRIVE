@@ -3,6 +3,8 @@
 
 [NetCine](https://netcine.biz/)
 
+[moztudo](https://www.moztudo.wizandroidmz.com/)
+
 [GoFilmes](https://gofilmes.me/)
 
 [SuperFilmes](https://superfilmes.tv/#/)
