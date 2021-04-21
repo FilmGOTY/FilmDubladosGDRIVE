@@ -49,6 +49,8 @@
 
 # Filmes (Dublado) (GoogleDrive)
 
+[Tubarão (1975)](https://drive.google.com/drive/folders/1tCdtdUkkMya6apn68rtc6A_0MFYo74K7)
+
 [Happy Feet 2](https://drive.google.com/file/d/1aZwva4QYT2UU_S3LD3sivLf2zXWg_1B9/view?usp=sharing)
 
 [Boku no hero 4](https://drive.google.com/drive/folders/1vyPcrX14mTG8WrKGAELmyyoUOLmdsTBo)
