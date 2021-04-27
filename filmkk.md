@@ -53,6 +53,16 @@
 
 # Filmes (Dublado) (GoogleDrive)
 
+[T1EP01](https://drive.google.com/file/d/1wyek8uggQdUYvGULraOf-kke3kh8NGZ6/view)
+
+[T5EP02](https://drive.google.com/file/d/1ScxkCLMFksxyUWBQilWNiIQ8pgeVuo0F/view)
+
+[T1EP03](https://drive.google.com/file/d/1WWFIgLjt8B8cjjnwtoAK30TETcA-Gkv4/view)
+
+[T1EP04](https://drive.google.com/file/d/1S_fOtIAfuDoiOGtHn_EfAFhGuATsHnCP/view)
+
+[T1EP05](https://drive.google.com/file/d/1SO9yQ3beyTUc2rvqxWCd7AhVUJWQFr8e/view)
+
 [Tubarão (1975)](https://drive.google.com/drive/folders/1tCdtdUkkMya6apn68rtc6A_0MFYo74K7)
 
 [Happy Feet 2](https://drive.google.com/file/d/1aZwva4QYT2UU_S3LD3sivLf2zXWg_1B9/view?usp=sharing)
