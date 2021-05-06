@@ -51,8 +51,7 @@
 
 [fullmetal](https://nowanimes.com/assistir-fullmetal-alchemist-brotherhood-1/)
 
-# Filmes (Dublado) (GoogleDrive)
-
+# Boku no hero 5
 [T1EP01](https://drive.google.com/file/d/1wyek8uggQdUYvGULraOf-kke3kh8NGZ6/view)
 
 [T5EP02](https://drive.google.com/file/d/1ScxkCLMFksxyUWBQilWNiIQ8pgeVuo0F/view)
@@ -62,6 +61,10 @@
 [T1EP04](https://drive.google.com/file/d/1S_fOtIAfuDoiOGtHn_EfAFhGuATsHnCP/view)
 
 [T1EP05](https://drive.google.com/file/d/1SO9yQ3beyTUc2rvqxWCd7AhVUJWQFr8e/view)
+
+[T1EP06](https://t.co/uOsG47KU5c?amp=1)
+
+# Filmes (Dublado) (GoogleDrive)
 
 [Tubarão (1975)](https://drive.google.com/drive/folders/1tCdtdUkkMya6apn68rtc6A_0MFYo74K7)
 
